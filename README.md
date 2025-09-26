@@ -1,5 +1,7 @@
 ## 𝚑𝚊𝚒   ⋆🧸ིྀ
 
+![image](https://github.com/user-attachments/assets/c3d677a0-ed83-40f2-a49a-4f6b916e3e72)
+
 
 𝒉𝒓𝒖 𝒍𝒖𝒗? :𝟑
 
